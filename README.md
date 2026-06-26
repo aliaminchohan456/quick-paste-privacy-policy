@@ -1,1 +1,0 @@
-# quick-paste-privacy-policy
